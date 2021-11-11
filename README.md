@@ -1,4 +1,5 @@
-You can't close this program. (I guess)
+Process duplicates and very annoying. you can close it by executing this on cmd.
+"taskkill /f /im amogus.exe"
 
 My first GUI program since I was born.
 
