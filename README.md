@@ -4,3 +4,14 @@ Process duplicates and very annoying. you can close it by executing this on cmd 
 My first GUI program since I was born.
 
 Don't look at the code pls because it's very shitty and will damage your brain.
+
+
+
+
+
+
+
+
+
+
+DOWNLPAD ***THIS*** PROGRAM IN UR COMPUTER AND DUBLE DA RAM!!!👄😱😱😱😱🥵🥵🥵🥵 DOWNLPAD ***THIS*** PROGRAM IN UR COMPUTER AND DUBLE DA RAM!!!😱👄😱😱😱🥵🥵🥵🥵 DOWNLPAD ***THIS*** PROGRAM IN UR COMPUTER AND DUBLE DA RAM!!!😱😱😱👄😱🥵🥵🥵🥵 DOWNLPAD ***THIS*** PROGRAM IN UR COMPUTER AND DUBLE DA R
